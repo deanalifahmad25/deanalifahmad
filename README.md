@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Perkenalkan nama saya **Dean Alif Ahmad**.\
+Perkenalkan nama saya **Dean Alif Ahmad**.
 
 Saya seorang **Mahasiswa Teknik Informatika**  di **Universitas Adhirajasa Reswara Sanjaya**
 
